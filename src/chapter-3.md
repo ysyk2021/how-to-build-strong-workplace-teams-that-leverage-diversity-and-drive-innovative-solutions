@@ -1,5 +1,3 @@
-Chapter 3: Building Diverse Teams
-=================================
 
 Diversity plays a crucial role in building strong workplace teams that drive innovative solutions and business success. In this chapter, we will explore the importance of building diverse teams, strategies for building such teams, and creating a culture of inclusivity and belonging.
 

@@ -1,5 +1,3 @@
-Strategies for Promoting Innovation in Diverse Teams
-=========================================================================================================
 
 Diverse teams have the potential to drive innovation and creativity, but it takes intentional effort to unlock their full potential. In this chapter, we will explore strategies for promoting innovation in diverse teams.
 

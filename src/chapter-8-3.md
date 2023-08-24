@@ -1,5 +1,3 @@
-Adjusting Diversity and Team Programs Based on Feedback
-========================================================================================================
 
 Measuring the success of diversity and team programs is essential for ensuring that they are effective in achieving their goals. In this chapter, we will explore strategies for measuring diversity and team success and adjusting diversity and team programs based on feedback.
 

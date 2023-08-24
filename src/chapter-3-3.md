@@ -1,5 +1,3 @@
-Creating a Culture of Inclusivity and Belonging
-==================================================================================
 
 Building diverse teams is essential for driving innovation and achieving business success. However, simply hiring employees from diverse backgrounds is not enough. Organizations must also create a culture of inclusivity and belonging to fully leverage the benefits of diversity. In this chapter, we will explore strategies for creating a culture of inclusivity and belonging in diverse teams.
 

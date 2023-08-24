@@ -1,5 +1,3 @@
-Chapter 8: Measuring Diversity and Team Success
-===============================================
 
 Measuring the success of diversity and team programs is essential for understanding their impact on business success. By analyzing team performance and engagement data, businesses can identify areas for improvement and adjust their programs accordingly. In this chapter, we'll discuss methods for measuring diversity and team success, analyzing team performance and engagement data, and adjusting diversity and team programs based on feedback.
 

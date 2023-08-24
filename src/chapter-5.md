@@ -1,5 +1,3 @@
-Chapter 5: Leveraging Diversity in Team Collaboration
-=====================================================
 
 Collaboration is essential for building strong workplace teams that leverage diversity and drive innovative solutions for business success. By embracing diversity and leveraging the unique perspectives and skills of team members, businesses can benefit from increased creativity, improved problem-solving, and enhanced decision-making. In this chapter, we'll discuss the benefits of leveraging diversity in team collaboration, strategies for promoting collaboration in diverse teams, and encouraging knowledge sharing and learning opportunities.
 

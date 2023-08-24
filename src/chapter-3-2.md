@@ -1,5 +1,3 @@
-Strategies for Building Diverse Teams
-========================================================================
 
 Building diverse teams is essential for driving innovation and achieving business success. In this chapter, we will explore strategies for building diverse teams.
 

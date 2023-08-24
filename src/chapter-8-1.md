@@ -1,5 +1,3 @@
-Methods for Measuring Diversity and Team Success
-=================================================================================================
 
 Measuring diversity and team success is essential for understanding the effectiveness of workplace teams and identifying areas for improvement. In this chapter, we will explore methods for measuring diversity and team success.
 

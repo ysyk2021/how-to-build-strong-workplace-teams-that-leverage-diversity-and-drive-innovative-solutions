@@ -1,5 +1,3 @@
-Definition of Diversity in the Workplace
-=============================================================================================
 
 Diversity in the workplace refers to the differences and variety of characteristics, experiences, and backgrounds that exist among employees. These differences can include but are not limited to:
 

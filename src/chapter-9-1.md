@@ -1,5 +1,3 @@
-The Benefits of Applying Diversity and Team Skills to Leadership
-=============================================================================================================================
 
 Leadership is critical for building strong workplace teams that leverage diversity and drive innovative solutions for business success. In this chapter, we will explore the benefits of applying diversity and team skills to leadership and provide strategies for maximizing the contributions of diverse team members in leadership roles.
 

@@ -1,5 +1,3 @@
-Strategies for Overcoming Challenges in Diverse Teams
-========================================================================================================
 
 While diverse teams bring many benefits to the workplace, they also face unique challenges. In this chapter, we will explore strategies for overcoming challenges in diverse teams.
 

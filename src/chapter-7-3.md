@@ -1,5 +1,3 @@
-Using Active Listening and Feedback Techniques
-=============================================================================================================
 
 Effective communication is essential for the success of diverse teams. In this chapter, we will explore strategies for fostering effective communication in diverse teams using active listening and feedback techniques.
 

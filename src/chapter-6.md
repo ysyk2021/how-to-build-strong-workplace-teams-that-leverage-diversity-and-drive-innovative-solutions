@@ -1,5 +1,3 @@
-Chapter 6: Driving Innovation through Diverse Teams
-===================================================
 
 Diversity within a workplace team can be a powerful tool for driving innovation and achieving business success. In this chapter, we'll explore the role of diverse teams in driving innovation, strategies for promoting innovation in diverse teams, and how to encourage creativity and risk-taking.
 

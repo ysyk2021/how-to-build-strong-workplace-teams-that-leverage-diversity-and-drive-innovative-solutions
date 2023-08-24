@@ -1,5 +1,3 @@
-Encouraging Creativity and Risk-Taking
-===========================================================================================
 
 Diverse teams can drive innovation by bringing together a range of perspectives and experiences to generate new ideas and solutions. However, to fully leverage the potential of diverse teams, it's important to create an environment that encourages creativity and risk-taking. In this chapter, we'll discuss strategies for fostering innovation in diverse teams.
 

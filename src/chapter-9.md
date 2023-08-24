@@ -1,5 +1,3 @@
-Chapter 9: Applying Diversity and Team Skills to Leadership
-===========================================================
 
 Leadership is essential for building strong workplace teams that leverage diversity and drive innovative solutions for business success. By applying diversity and team skills to leadership, leaders can create a culture of inclusivity and empathy that supports the growth and development of all team members. In this chapter, we'll discuss the benefits of applying diversity and team skills to leadership, strategies for becoming a better leader, and leading with inclusivity and empathy.
 

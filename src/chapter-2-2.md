@@ -1,5 +1,3 @@
-The Impact of Diversity on Business Success
-================================================================================================
 
 Diversity in the workplace refers to the variety of differences that exist among employees, including but not limited to race, gender, age, ethnicity, religion, sexual orientation, and physical abilities. In this chapter, we'll discuss the impact of diversity on business success.
 

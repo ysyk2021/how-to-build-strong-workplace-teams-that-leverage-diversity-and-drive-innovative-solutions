@@ -1,5 +1,3 @@
-Leading with Inclusivity and Empathy
-=================================================================================================
 
 Leadership plays a critical role in building strong workplace teams that leverage diversity to drive innovative solutions and business success. In this chapter, we will explore the importance of leading with inclusivity and empathy when applying diversity and team skills to leadership.
 

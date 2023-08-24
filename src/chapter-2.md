@@ -1,5 +1,3 @@
-Chapter 2: Understanding Diversity in the Workplace
-===================================================
 
 Diversity is a critical factor in building strong workplace teams that drive innovative solutions and business success. In this chapter, we will explore the definition of diversity in the workplace, the impact of diversity on business success, and strategies for leveraging diversity in the workplace.
 

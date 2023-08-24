@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In today's rapidly changing and highly competitive business environment, building strong workplace teams that leverage diversity is critical for driving innovative solutions and achieving business success. In this chapter, we will explore the importance of building strong workplace teams that leverage diversity, the benefits of diversity in driving innovative solutions for business success, and provide an overview of the book.
 

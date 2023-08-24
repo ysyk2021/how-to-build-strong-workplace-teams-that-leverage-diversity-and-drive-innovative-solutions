@@ -1,5 +1,3 @@
-Strategies for Using Diversity and Team Skills to Become a Better Leader
-=====================================================================================================================================
 
 Leadership plays a critical role in building strong workplace teams that leverage diversity to drive innovative solutions and business success. In this chapter, we will explore strategies for using diversity and team skills to become a better leader.
 

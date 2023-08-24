@@ -1,5 +1,3 @@
-The Impact of Challenges in Diverse Teams
-============================================================================================
 
 Diversity can bring a wealth of benefits to a team, including diverse perspectives, innovative ideas, and increased creativity. However, working in a diverse team can also present challenges that must be overcome in order to achieve success. In this chapter, we will explore the impact of these challenges and provide strategies for overcoming them.
 

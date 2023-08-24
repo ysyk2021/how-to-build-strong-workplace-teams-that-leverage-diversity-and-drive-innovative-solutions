@@ -1,5 +1,3 @@
-Analyzing Team Performance and Engagement Data
-===============================================================================================
 
 Analyzing team performance and engagement data is essential for understanding the effectiveness of workplace teams and identifying areas for improvement. In this chapter, we will explore strategies for analyzing team performance and engagement data.
 
