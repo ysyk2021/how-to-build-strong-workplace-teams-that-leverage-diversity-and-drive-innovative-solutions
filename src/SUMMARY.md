@@ -1,6 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
+- [Chapter 1: Introduction](README.md)
   - [Importance of building strong workplace teams that leverage diversity](chapter-1-1.md)
   - [Benefits of diversity in driving innovative solutions for business success](chapter-1-2.md)
 - [Chapter 2: Understanding Diversity in the Workplace](chapter-2.md)
