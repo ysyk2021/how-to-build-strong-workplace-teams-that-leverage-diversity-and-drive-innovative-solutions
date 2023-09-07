@@ -9,3 +9,7 @@ At the same time, building strong workplace teams requires more than just divers
 Whether you are a business leader, a manager, or a team member, this book will provide valuable insights and actionable advice for creating high-performing teams that can thrive in today's complex and dynamic business environment. So let's dive in and explore the key principles and strategies for building strong workplace teams that leverage diversity and drive innovation!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
