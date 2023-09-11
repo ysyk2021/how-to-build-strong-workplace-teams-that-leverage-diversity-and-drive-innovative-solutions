@@ -1,5 +1,4 @@
-Chapter 4: Definition of Diversity in the Workplace
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the definition of diversity in the workplace and its significance in building strong teams that drive innovative solutions for business success. Understanding what diversity encompasses is crucial for organizations seeking to create an inclusive and diverse work environment.
 

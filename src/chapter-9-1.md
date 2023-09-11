@@ -1,5 +1,4 @@
-Chapter 6: The Benefits of Applying Diversity and Team Skills to Leadership
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leadership is often considered a crucial determinant of business success, but to reap its full benefits, leaders need to apply diversity and team skills. A diverse and inclusive leadership team can better reflect and serve the needs of diverse stakeholders, including customers, employees, and communities. Additionally, by leveraging the strengths and perspectives of all team members, leaders can drive innovation and create sustainable value.
 

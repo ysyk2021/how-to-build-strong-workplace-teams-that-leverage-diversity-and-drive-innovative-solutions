@@ -1,5 +1,4 @@
-Chapter 15: The Impact of Challenges in Diverse Teams
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the impact of challenges in diverse teams and how to effectively address them. While diverse teams can bring a variety of perspectives and innovative ideas, they can also face unique challenges that can impede their success. By understanding these challenges and developing strategies to address them, diverse teams can leverage their differences to drive innovation and business success.
 

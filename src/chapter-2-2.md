@@ -1,5 +1,4 @@
-Chapter 9: The Impact of Diversity on Business Success
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant impact that diversity can have on business success. Understanding the benefits of leveraging diversity within workplace teams is essential for organizations aiming to stay competitive in today's dynamic and global business environment.
 

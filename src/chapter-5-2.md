@@ -1,5 +1,4 @@
-Chapter 11: Strategies for Promoting Collaboration in Diverse Teams
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss effective strategies for promoting collaboration within diverse teams. Collaboration is essential for leveraging the strengths and perspectives of team members from diverse backgrounds and maximizing their contributions towards innovative solutions.
 

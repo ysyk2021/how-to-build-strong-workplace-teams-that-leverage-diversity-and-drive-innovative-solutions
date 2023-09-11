@@ -1,5 +1,4 @@
-Chapter 9: Leading with Inclusivity and Empathy
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Inclusive and empathetic leadership is vital for building strong workplace teams that leverage diversity and drive innovative solutions. By embracing inclusivity and empathy, leaders can create a supportive and engaging work environment where all team members feel valued, heard, and motivated to contribute their best.
 

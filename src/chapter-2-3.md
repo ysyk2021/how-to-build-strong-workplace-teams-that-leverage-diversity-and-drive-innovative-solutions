@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Leveraging Diversity in the Workplace
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss strategies for leveraging diversity in the workplace to build strong teams that drive innovative solutions for business success. By harnessing the power of diversity, organizations can unlock the full potential of their workforce and create a competitive advantage in today's global marketplace.
 

@@ -1,5 +1,4 @@
-Chapter 12: The Role of Diverse Teams in Driving Innovation
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant role of diverse teams in driving innovation within the workplace. By leveraging the unique perspectives, experiences, and skills of team members from different backgrounds, organizations can foster a culture of innovation and achieve business success in today's global and dynamic marketplace.
 

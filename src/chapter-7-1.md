@@ -1,5 +1,4 @@
-Chapter 10: The Impact of Effective Communication on Diverse Teams
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant impact that effective communication can have on diverse teams within the workplace. Communication plays a crucial role in fostering collaboration, understanding, and synergy among team members from different backgrounds and perspectives.
 

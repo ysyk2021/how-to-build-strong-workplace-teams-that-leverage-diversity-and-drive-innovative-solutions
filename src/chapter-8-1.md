@@ -1,5 +1,4 @@
-Chapter 12: Methods for Measuring Diversity and Team Success
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Measuring the success of diversity and team initiatives is crucial for building strong workplace teams that leverage diversity and drive innovative solutions. By implementing effective measurement methods, leaders can objectively evaluate the impact of these initiatives, track progress, and make informed decisions to foster a diverse and successful team environment.
 

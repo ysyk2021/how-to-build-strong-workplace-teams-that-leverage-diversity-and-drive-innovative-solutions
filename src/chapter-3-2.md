@@ -1,5 +1,4 @@
-Chapter 14: Strategies for Building Diverse Teams
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss effective strategies for building diverse teams that can drive innovative solutions and contribute to business success. Building diverse teams requires intentional efforts to attract and retain individuals from different backgrounds, experiences, and perspectives. By implementing the following strategies, organizations can create a strong foundation for diversity and inclusion.
 

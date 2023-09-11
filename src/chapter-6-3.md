@@ -1,5 +1,4 @@
-Chapter 17: Encouraging Creativity and Risk-Taking
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of encouraging creativity and risk-taking within workplace teams to drive innovative solutions for business success. By fostering a culture that values and supports creative thinking and calculated risk-taking, organizations can unlock the full potential of their teams and stay competitive in a rapidly evolving business landscape.
 

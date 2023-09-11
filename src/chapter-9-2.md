@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Using Diversity and Team Skills to Become a Better Leader
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Becoming a better leader involves harnessing the power of diversity and team skills to drive innovation, foster collaboration, and create a positive work environment. By implementing specific strategies, leaders can leverage the strengths of diverse teams and enhance their own leadership capabilities.
 

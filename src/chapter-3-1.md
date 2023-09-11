@@ -1,5 +1,4 @@
-Chapter 1: The Importance of Building Diverse Teams
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's global and interconnected world, building diverse teams is no longer just a matter of meeting legal or moral obligations. Instead, it has become essential to foster a culture of innovation and drive business success.
 

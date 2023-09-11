@@ -1,5 +1,4 @@
-Chapter 11: Adjusting Diversity and Team Programs Based on Feedback
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To build strong workplace teams that leverage diversity and drive innovative solutions, it is essential to continuously assess and adjust diversity and team programs based on feedback. By actively seeking input from team members and stakeholders, leaders can make informed decisions, address concerns, and create an inclusive environment where everyone can thrive.
 
